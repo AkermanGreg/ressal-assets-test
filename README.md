@@ -1,0 +1,1 @@
+# ressal-assets-test
